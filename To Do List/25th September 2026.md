@@ -1,1 +1,3 @@
 - [ ] Do something on Marketing
+- [ ] Revision
+- [ ] Get ur shit ogether
