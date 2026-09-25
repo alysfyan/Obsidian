@@ -1,0 +1,1 @@
+Im tired, but im not sure what i want or what i want to do next but i really wanna drop out from utb. Maybe having no friends play the part that effecting my decision but to me its more than that.. i have no one to push me to go to school everyday, nothing that motivates me to come to school not to mention that i dont think 
